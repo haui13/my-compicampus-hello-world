@@ -8,4 +8,9 @@ Additional informations
 
 
 
-*Abfall
+*Abfall* ist was schönes
+
+* kirsche
+* Brine
+* Baum
+
